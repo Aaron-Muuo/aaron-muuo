@@ -31,4 +31,4 @@
 
 ### 📫 Connect With Me
 
-[LinkedIn](https://www.linkedin.com/in/aaron-muuo/) • [Portfolio](https://verceed.com)
+[LinkedIn](https://www.linkedin.com/in/aaron-muuo/) • [Portfolio](https://verceed.com) • [Website](https://aaronmuuo.co.ke)
